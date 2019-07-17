@@ -20,13 +20,10 @@ bitch??? i’m
 like the floor is low ha
 feeling too much fun
 
-
-
 - complacent
 - distresses
 etching my 
 shape
-
 
 so she told me 
 that was all
@@ -39,7 +36,6 @@ your not worth it
 
 she could hold
 in her heart
-
 
 oh i know
 
