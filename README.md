@@ -2,7 +2,6 @@
 
 # MOTHNODE_ Worth It
 
-
 **Listen now:** x
 
 ## Project Data
