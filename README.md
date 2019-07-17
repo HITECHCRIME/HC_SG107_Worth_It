@@ -58,7 +58,6 @@ bitch
 
 ——
 
-
 did all you could ha?
 well that ain’t too much
 where the other side?
@@ -69,9 +68,6 @@ she can she
 did well ain’t
 too much from
 you then
-
-
-
 
 this one witch, oh sorry bitch
 told me all she can she did
