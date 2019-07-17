@@ -13,7 +13,7 @@ Description.
 
 **Title:** x / **Featuring:** x
 
-**Production:** x / **Lyrics:** x
+**Production:** LCS / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
