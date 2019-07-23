@@ -94,34 +94,6 @@ into dark thoughts they won’t get you home
 
 leave you stranded for days
 
-caught in the net so slow 
-ya can’t reach them heights from afar 
-get ahold of the switch
-
-blowing chances to fold
-prep for a breach and withholding all the data
-don’t give it to the witch
-
-most of the days just drifting me up so 7 + 1
-slide the damn scale, can’t believe what i’m saying
- if you really turn up 7
-
-maybe i should tough it out once 
-you said dust goes down 7
-now i doubt it will ever happen blood 7
-
-blame for thirst - old dychotomy 8
-sordid blatant hypocrisy shown
-
-soooometimes i get things right
-even if involves 
-losses some abound
-
-all my thoughts used to roll with the tide
-fall with emotions, rationals, lost in the pride
-so strong can’t deny 
- it’s the price of honour 
-
 
 ```
 
